@@ -19,6 +19,8 @@ Maya/ZBrush/RizomUV</br>
 ![image](https://github.com/user-attachments/assets/840c8290-e79c-4b73-8b23-5f244f3d3550)
 ![image](https://github.com/user-attachments/assets/79afad44-8953-4132-b8d3-a9f6236ee838)
 ![image](https://github.com/user-attachments/assets/ef5211bd-645c-4044-8d4c-6d4b9e5008d6)
+![image](https://github.com/user-attachments/assets/48af391d-653c-4414-83da-4915a929738a)
+![image](https://github.com/user-attachments/assets/9f4676ae-7240-4472-81ed-d8b49e27d9f9)
 
 
 
